@@ -6,12 +6,6 @@
 
 💬 **Te ayudamos a expedirlo fácilmente.**
 
-<div style="text-align: center;">
-  <a href="https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad">
-    <img src="./tradicion-y-libertad-bogota.png" alt="Expedir Certificado de Tradición y Libertad" style="width: 300px;"/>
-  </a>
-</div>
-
 [![Expedir Certificado de Tradición y Libertad](./tradicion-y-libertad-bogota.png)](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad)
 
 
@@ -37,6 +31,15 @@ El certificado incluye los siguientes datos importantes:
 ## ¿Cómo obtener el Certificado de Tradición y Libertad en Bogotá?
 
 Para obtener el **Certificado de Tradición y Libertad en Bogotá**, puedes seguir los siguientes pasos:
+
+💬 **Te ayudamos a expedirlo fácilmente.**
+
+[![Expedir Certificado de Tradición y Libertad](./tradicion-y-libertad-bogota.png)](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad)
+
+
+Escríbenos por WhatsApp al [CLIC AQUI](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad).
+
+¡Estamos listos para ayudarte!
 
 1. **Acceder a la página web de la Superintendencia de Notariado y Registro**.
 2. Ingresar el **número de matrícula inmobiliaria** del inmueble que deseas consultar.
@@ -65,6 +68,15 @@ El certificado refleja el estado jurídico del inmueble al momento de su emisió
 
 ### ¿Es necesario tener este certificado para vender una propiedad?
 Sí, es un requisito indispensable para cualquier compraventa de inmuebles, ya que el comprador deberá verificar que la propiedad está libre de gravámenes y problemas legales.
+
+💬 **Te ayudamos a expedirlo fácilmente.**
+
+[![Expedir Certificado de Tradición y Libertad](./tradicion-y-libertad-bogota.png)](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad)
+
+
+Escríbenos por WhatsApp al [CLIC AQUI](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad).
+
+¡Estamos listos para ayudarte!
 
 ---
 
