@@ -1,16 +1,17 @@
 # Certificado de Tradición y Libertad en Bogotá
 
-<div style="background-color: #f5f5f5; border: 2px solid #4CAF50; padding: 20px; border-radius: 10px; text-align: center;">
+
 
 ### ¿Necesitas tu Certificado de Tradición y Libertad en Bogotá?
 
-💬 **Te ayudamos a expedirlo fácilmente.** <br>  
-Escríbenos por WhatsApp al [320 440 3165](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad).
+💬 **Te ayudamos a expedirlo fácilmente.**
 
-<p style="color: #4CAF50; font-size: 18px; font-weight: bold;">¡Estamos listos para ayudarte!</p>
+[![Expedir Certificado de Tradición y Libertad](./tradicion-y-libertad-bogota.png)](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad)
 
-</div>
 
+Escríbenos por WhatsApp al [CLIC AQUI](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad).
+
+¡Estamos listos para ayudarte!
 
 El **Certificado de Tradición y Libertad en Bogotá** es un documento oficial emitido por la Superintendencia de Notariado y Registro de Colombia. Este certificado contiene el historial jurídico de un inmueble, proporcionando información clave sobre la propiedad, tales como su titularidad, gravámenes, hipotecas, embargos y otros aspectos relevantes.
 
