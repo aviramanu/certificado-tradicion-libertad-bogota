@@ -6,6 +6,12 @@
 
 💬 **Te ayudamos a expedirlo fácilmente.**
 
+<div style="text-align: center;">
+  <a href="https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad">
+    <img src="./tradicion-y-libertad-bogota.png" alt="Expedir Certificado de Tradición y Libertad" style="width: 300px;"/>
+  </a>
+</div>
+
 [![Expedir Certificado de Tradición y Libertad](./tradicion-y-libertad-bogota.png)](https://wa.me/573204403165?text=Github-Hola%20ayudame%20a%20expedir%20un%20certificado%20de%20tradicion%20y%20libertad)
 
 
